@@ -1,1 +1,1 @@
-# takeover by @mad_vima@bugcrowdninja.com
+# Just a Page
